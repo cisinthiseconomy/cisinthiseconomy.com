@@ -53,7 +53,7 @@ Counter-Strike is the late 90’s e-sports franchise that has managed to stay st
 
 Progression from CS 1.6, CPL/Grass-roots LAN era to WEM/CGS/whatever to 2013 CSGO to CSGO now, endless online qualifiers, no major open-entry LANs
 
-### Ok cool, but Melee hasn't devolved into invitationals right?
+### Ok cool, but Melee hasn't devolved into invitationals yet right?
 
 Now I would like to go back to Melee to take a look at the one major e-sports tournament organizer that does show up within Melee, Beyond The Summit. To be fair, to call BTS a major player in e-sports comes with the caveat that of all the big companies in this industry, they have quite a different approach than you’d normally see. Their events are private and have a more informal vibe as opposed to the prestige of high-budget, big attendance, ‘E-SPORTS’ events with massive lights with Flash walking out of a fucking jet to make this entrance on stage. (https://www.youtube.com/watch?v=0aw-42JO3qk) But still, what quintessential part of the Melee scene lacks in BTS’s tournaments? It’s an 18-player invitational tournament, closed off from the general public where the community’s involvement is boiled down to a popularity contest, one where people have to buy BTS merch to acquire more votes. The only other thing people can do is be spectators from home, making the tournament more akin to League Worlds 2020 than the large community gatherings such as Genesis 7. CREDIT WHERE CREDIT IS DUE THO, THEY DID HOLD MAINSTAGE
 
