@@ -45,7 +45,7 @@ This focus of the community towards making the scene more marketable towards spo
 
 Due to volunteers often being relatively new to tournament organizing it causes issues when people need to learn the skills necessary on the fly. Volunteers perhaps aren’t fully familiar with rule-sets, comfortable with being a public figure and fully prepared to deal with the customer-service aspect of the position. A particular example that I feel is important to note when it comes to grass-roots scenes like Team Fortress and Melee as well is that volunteer tournament-organizers are in particular often not well versed in dealing with inter-community moderation such as with personal harassment and general bigotry.
 
-### WIP: The progression of e-sports to the modern era: from large-scale grass-roots tournaments to invitationals and franchising
+### What about games that aren't tiny and dying tho?
 
 So hopefully you will now agree with me that this aspiration and active pursuit of becoming a ‘big e-sport’ can cause adverse effects on your scene. Now I would like to now present a cautionary tale about embracing high-budget corporate involvement without a healthy amount of skepticism. Let’s talk about Counter-Strike. 
 
