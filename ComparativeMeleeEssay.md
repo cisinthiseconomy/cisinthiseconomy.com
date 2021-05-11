@@ -1,5 +1,6 @@
 # Please stop trying to make Melee an “e-sport”  
-*a slightly disorganized rant on professionalizing your e-sports scene, comparing melee to other e-sports scenes*
+*a slightly disorganized rant on professionalizing your e-sports scene, comparing melee to other e-sports scenes*  
+*by [Nago](https://www.twitter.com/cisinasociety)/Nago#0050 on Discord*
 
 > **Jason “M3D” Rice, Team Lead for the game Icons: Arena. Quote from Metagame Episode 6:**
 *“People didn’t really realize early on just how powerful the online market was going to be and then you saw the rise of streaming services like twitch that popped up and it became this whole other thing; watching people play games became this viable way to make money. 
