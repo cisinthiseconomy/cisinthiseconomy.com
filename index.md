@@ -1,7 +1,3 @@
----
-layout: default
-title: words
----
 heya
 
 here's the [melee essay](/ComparativeMeleeEssay)
