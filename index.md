@@ -1,7 +1,8 @@
-heya
+heya its ur good pal Nago, DMC World 2021 finalist, melee player, non-binary homosexual and some other shit idk
 
-here's the [melee essay](/ComparativeMeleeEssay)
+you probably found me through the DMC World 2021 finals, if you wanna see the other dumb stuff(videogame/e-sports stuff and some gay/leftist shit too) i do check out my [awful bird site(twitter) account](https://twitter.com/cisinasociety), my [stream](https://twitch.tv/cisinthiseconomy) or my [instagram](https://instagram.com/cisinthiseconomy), that I really need to start using for music stuff
 
-you probably found me from my [awful bird site account](https://twitter.com/cisinasociety) or my [stream](https://twitch.tv/cisinthiseconomy)  
-i dump random music things on [here](https://instagram.com/theboopbeep), planning on moving it onto this site at some point maybe  
-if you need to get a hold of me, DM me on discord Nago#0050  
+if you need to get a hold of me, DM me on discord(Nago#0050), insta or twitter 
+
+here's that [melee essay i wrote](/ComparativeMeleeEssay)
+
