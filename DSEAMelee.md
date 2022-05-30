@@ -32,4 +32,4 @@ Opposite end of the venue has a bar which serves dinner till 21:00, after that y
 
 [http://twitch.tv/supersmashdelft](http://twitch.tv/supersmashdelft)
 
-[http://challonge.com/supersmashdelft](http://challonge.com/supersmashdelft)
+[http://challonge.com/users/supersmashdelft/tournaments](https://challonge.com/users/supersmashdelft/tournaments)
