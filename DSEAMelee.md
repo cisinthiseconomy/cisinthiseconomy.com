@@ -1,7 +1,7 @@
 # DSEA Melee Biweeklies, on every other thursday
 *TOd by Nago, Streamed by vlerk and Co-TOd by DSEA staff member Kim/Bananenbaard*
 
-**Dates:** June 9th, 23rd, July 7th, 21st and so on
+**Dates:** June 23rd and then a break until the end of summer break (end of August/start of September)
 
 **Time:** Entry at 18:00
 
