@@ -28,11 +28,13 @@ Parking garage (P Sports) across the street from the venue
 **Food:**
 Opposite end of the venue has a bar which serves dinner till 21:00, after that you can only order snack
 
-**Stream/bracket:**
+**Stream/bracket/discord:**
 
 [http://twitch.tv/supersmashdelft](http://twitch.tv/supersmashdelft)
 
 [http://challonge.com/users/supersmashdelft/tournaments](https://challonge.com/users/supersmashdelft/tournaments)
+
+[**https://discord.gg/qQBZeFsmje**](https://discord.gg/qQBZeFsmje)
 
 **Slippi Replays**
 
