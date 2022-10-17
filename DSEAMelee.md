@@ -38,4 +38,4 @@ Opposite end of the venue has a bar which serves dinner till 21:00, after that y
 
 **Slippi Replays**
 
-Link will be posted after the first local back
+[https://drive.google.com/drive/folders/1103DBRu7HtoGoAvGTzPdtliO3WSZ2JVK](https://drive.google.com/drive/folders/1103DBRu7HtoGoAvGTzPdtliO3WSZ2JVK)
