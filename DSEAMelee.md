@@ -26,7 +26,7 @@ Bus/tram stop right next to venue that has connections to the central Delft stat
 Parking garage (P Sports) across the street from the venue
 
 **Food:**
-Opposite end of the venue has a bar which serves dinner till 21:00, after that you can only order snack
+Opposite end of the venue has a bar which serves dinner till 21:00, after that you can only order snacks
 
 **Stream/bracket/discord:**
 
