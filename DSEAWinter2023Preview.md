@@ -62,6 +62,14 @@ OBR and PSG's own Madness is coming to the Netherlands once again to show the Ne
 
 And here we are, they think they only have to deal with the French Luigi, the 96th person to register and therefore make the event reach its entrants cap is yet another mid-tier Renzo slayer, Touffe. The Netherlands luckily is not bereft of Sami such as the previously PR'ed seo and 2022 Honorable Mention Rabbitalex, but Touffe is definitely a different beast. Spacies and Marths alike will have to watch out for this Samus who already picked up a RestlessWhale win at HFLAN 2022 and is looking for more.
 
+**Psylo - #? in France - Lille - Falco**
+
+For the final frenchie, it's the one has to travel the least distance to get to the tournament, Psylo. The Lille native has, since his debut on the French PR in 2018 at 14th, slowly been climbing the ranks of the French scene. While not yet making a big dent in the tippy-top of the French scene he did pick up a Frenzy win in 2022 and is most definitely one of the top falcos in Europe. Unfortunately he still has to do this while getting bullied at his own locals by........
+
+**LunarySSF2 - #2 on the 2019 Belgium PR - Wallonia - Marth/Falcon**
+
+The foreign player who is the closest to Delft of all foreign attendees. Lunary is kind of a hidden boss of Europe, hailing from Belgium, a scene currently experiencing quite a tournament draught. Lunary may not come from the region with the biggest presence within the discourse of best region in Europe, he has come out to French events this year to prove himself to be one of the top francophone players in the world. He won Foster's Bros in 2022 defeating Raoul and Feradit, the other top player from Belgium. He has farmed all Lille tournaments all years and also has a Frenzy win. It'll be quite exciting to see Lunary attend his first Dutch tournament.
+
 **lilfroozy - #6 in Berlin - Berlin - Fox**
 
 One of multiple PR'd players better known for their commentatory; I want to avoid reducing them down just to their contributions to the scene in other areas. lilfroozy is perhaps remember best as a player prior to the pandemic as the best puff in the country when he peaked at 6th on the national PR in 2019, but his switch to fox has still resulted in some productive performances like his recent 4th placing at PixelPokal x Dreamhack in November
@@ -69,14 +77,6 @@ One of multiple PR'd players better known for their commentatory; I want to avoi
 **King - Gonna be ranked on the 2022 German PR whenever that comes out - Hannover - Falco**
 
 Another change that happened in the German scene in the Slippi era is the emergence of the Melee Hannover TO, King as a top Falco within Germany. He has quickly risen through the scene and had himself a great 2022, getting top 12 finishes at both HFLAN and Dreamhack Rotterdam, picking up wins on Happymealz, Raoul, Jah Ridin' and even an elusive Nicki win at a Berlin local.
-
-**Psylo - #? in France - Lille - Falco**
-
-Quickly returning to France to talk about another Falco, this time it is the Frenchie that has the travel the least distance to get to the tournament, Psylo. Psylo has had since his debut on the French PR in 2018 at 14th, slowly been climbing the ranks of the French scene. While not yet making a big dent in the tippy-top of the French scene he did pick up a Frenzy win in 2022 and is most definitely one of the top falcos in Europe. Unfortunately he still has to do this while getting bullied at his own locals by........
-
-**LunarySSF2 - #2 on the 2019 Belgium PR - Wallonia - Marth/Falcon**
-
-The foreign player who is the closest to Delft of all foreign attendees. Lunary is kind of a hidden boss of Europe, hailing from Belgium, a scene currently experiencing quite a tournament draught. Lunary may not come from the region with the biggest presence within the discourse of best region in Europe, he has come out to French events this year to prove himself to be one of the top francophone players in the world. He won Foster's Bros in 2022 defeating Raoul and Feradit, the other top player from Belgium. He has farmed all Lille tournaments all years and also has a Frenzy win. It'll be quite exciting to see Lunary attend his first Dutch tournament.
 
 ### Best of the Rest ###
 
