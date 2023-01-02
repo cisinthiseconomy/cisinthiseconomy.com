@@ -46,23 +46,23 @@ Now the big reason why I decided to write this article is because DSEA Winter 20
 
 The Southern English Sheik is looking to be the favourite to win this tournament, having had a very succesfull 2022 that culminated in a #3 spot on the UK pr and a top 4 placing at the last big EU major of the year, HFLAN. He's also one of the many Sheiks at this event.
 
-**NekoKaze - #? in France - Paris - Sheik**
+**NekoKaze - #12 in France - Paris - Sheik**
 
 Here's another one! NekoKaze has been one of the upcoming players within the french scene since the return of IRL events, he made his first national PR this year and has exhibited great peaks such as a Psylo win, but has also exhibited some lows. It'll be exciting to see him continue attending more events outside of France!
 
-**Giuseppe - #? in France - Rennes - Sheik**
+**Giuseppe - HM on 2022 French PR - Rennes - Sheik**
 
-Also part of the seemingly endless supply of Sheiks in France nowadays, Giuseppe is also looking to be building off of his first ever national PR appearance. While he didn't leave France at all last year, he had a good top 32 showing at the french major HFLAN where he beat Friso and Porc.
+Also part of the seemingly endless supply of Sheiks in France nowadays, Giuseppe is also looking to be building off of his first ever national PR appearance even if it was only a Honourable Mention. While he didn't leave France at all last year, he had a good top 32 showing at the french major HFLAN where he beat Friso and Porc.
 
-**Madness - #? in France - Paris - Luigi**
+**Madness - #3 in France - Paris - Luigi**
 
 OBR and PSG's own Madness is coming to the Netherlands once again to show the Netherlands that even though they may have gotten rid of the domestic luigi's like serket and TDX, they can't hide from the francophone luigi's. One of France's best is looking to once again terrorize the Netherlands like he did at Dreamhack Rotterdam 2022 when he 3-1'd Renzo to make 17th.
 
-**Touffe - #? in France - Lyon - Samus**
+**Touffe - #14 in France - Lyon - Samus**
 
 And here we are, they think they only have to deal with the French Luigi, the 96th person to register and therefore make the event reach its entrants cap is yet another mid-tier Renzo slayer, Touffe. The Netherlands luckily is not bereft of Sami such as the previously PR'ed seo and 2022 Honorable Mention Rabbitalex, but Touffe is definitely a different beast. Spacies and Marths alike will have to watch out for this Samus who already picked up a RestlessWhale win at HFLAN 2022 and is looking for more.
 
-**Psylo - #? in France - Lille - Falco**
+**Psylo - #4 in France - Lille - Falco**
 
 For the final frenchie, it's the one has to travel the least distance to get to the tournament, Psylo. The Lille native has, since his debut on the French PR in 2018 at 14th, slowly been climbing the ranks of the French scene. While not yet making a big dent in the tippy-top of the French scene he did pick up a Frenzy win in 2022 and is most definitely one of the top falcos in Europe. Unfortunately he still has to do this while getting bullied at his own locals by........
 
