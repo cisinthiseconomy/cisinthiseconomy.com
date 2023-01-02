@@ -1,4 +1,4 @@
-# DSEA Winter 2023 preview #
+# DSEA Winter 2023 preview
 
 *[Additional Bracket info](https://www.start.gg/tournament/dsea-winter-2023) and [Stream](http://twitch.tv/supersmashdelft)*
 
