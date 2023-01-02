@@ -86,7 +86,7 @@ We've talked about the Dutch PR'd attendees, the notable foreign attendees, but 
 
 The allegedly retired Brabant Sheik main makes another rare appearance, he didn't make attendance requirements for the PR this but he did win the only regional he attended, DSEA Spring 2022 beating noon, Friso, Fout NL, Jim Morrison and Renzo. I don't think I will be the only one to tell you that Aaron isn't just some retired sukkeltje. He did have an underwhelming Dreamhack Rotterdam but he is not to be underestimated in the slightest.
 
-**epikfaal - #1 in the Netherlands in 2021 - Noord-Holland - Sheik**
+**epikfaal - #11 in the Netherlands in 2021 - Noord-Holland - Sheik**
 
 This Dutch Sheik main also did not make attendance requirements for the last PR but is definitely not to be considered "inactive", as he did end up making attendance requirements for the dutch PM pr where he got placed in A tier. So he definitely spent a decent amount of 2022 holding a gamecube controller in his hands.
 
