@@ -5,5 +5,6 @@ you probably found me through either my turntablism stuff , if you wanna see the
 if you need to get a hold of me, DM me on discord(Nago#0050), insta or cohost 
 
 here's that [melee essay i wrote](/ComparativeMeleeEssay)
+
 here's a [preview article i wrote for a big dutch melee tournament](/DSEAWinter2023Preview)
 
