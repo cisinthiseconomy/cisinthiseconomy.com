@@ -1,4 +1,5 @@
 # DSEA Winter 2023 preview
+*by [Nago](http://cisinthiseconomy.com)/Nago#0050 on Discord*
 
 *[Additional Bracket info](https://www.start.gg/tournament/dsea-winter-2023) and [Stream](http://twitch.tv/supersmashdelft)*
 
