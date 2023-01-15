@@ -1,7 +1,7 @@
 # DSEA Melee Biweeklies, on every other thursday
 *TOd by Nago, Streamed by vlerk and Co-TOd by DSEA staff member Kim/Bananenbaard*
 
-**Dates:** October 6th & 20th, November 3rd & 17th, December 8th & 22nd and January 12th & 26th 
+**Dates:** January 19th, Febuary 2nd, rest of the 2023 dates are TBD
 
 **Time:** Entry at 19:00
 
