@@ -109,7 +109,7 @@ Nice another non-spacie. This guy chain-grabbed me in amateurs at my very first 
 
 This old Brabant player beat Grolex at the very first arcadian in 2017, he also won Dynasmash amateur bracket over other half of Bossche boys Baerendt, he also barely lost to Halzyn and Reddanger at Sector Z #7.0 in 2020 which sounds like it could be a result from this weekend. I’ve been told he’s good but I think most his results are buried in old Brabant local challonge brackets that I will not bother to sift through sorry.
 
-**Reddanger – Ganon – Zuid Holland**
+**Reddanger – Ganon – Rotterdam**
 
 The elusive Ganon main from Zuid Holland is a bit of cult hero within the Zuid Holland scene. Going into relative inactivity since the beginning of 2020, he has sparingly attended only two events, DSEA Spring 2022, where he defeated KasparV and DSEA Winter 2023, where he got upset in pools by Dirty Dave, a local falcon main, but ended up winning Amateur bracket in the end over CAOTIC.
 
