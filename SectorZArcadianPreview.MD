@@ -85,14 +85,13 @@ The classic at every arcadian, this arcadian will also feature a large group of 
 
 Our good friend randy rarely attends stuff but is a welcome presence within the Dutch Melee scene and has successfully been roped into attending our arcadian. He has recently attended Dreamhack Rotterdam where he managed to beat Magik and flippy_o, some notable mid-PR players from their respective countries. Halzyn is a bit of a dark horse as he hasn’t exactly NOT been playing melee, but the limits of his abilities are unknown.
 
-
 **Nidyz – Fox – Den Bosch**
 
 One half of Bossche Boys comes out of “retirement” after destroying his hands playing fox. He’s now here playing fox on a rectangle, utilizing new and improved ways to destroy one’s hands. He was quite good (having gotten multiple PR wins in 2019) prior to becoming inactive and playing DDR instead, truly an iconoclast who paved the way for nebbii’s retirement to play rhythm games and tetris.
 
 **Seel – Fox – Amsterdam**
 
-Going through Seel’s [REDACTED]stats is quite funny, he has a bunch pre-pandemic wins over a bunch of people who would go on to make PR later on. Unfortunately for him this does not guarantee that he currently is a PR-caliber player, but having wins over risc, noxxa, nuckels, thommyn and many more is definitely a good sign.
+Going through Seel’s [REDACTED]stats is quite funny, he has a bunch pre-pandemic wins over a bunch of people who would go on to make PR later on. Unfortunately for him this does not guarantee that he currently is a PR-caliber player, but having lifetime wins over risc, noxxa, nuckels, thommyn and many more is definitely a good sign.
 
 **Peridot – Yoshi – Helmond**
 
