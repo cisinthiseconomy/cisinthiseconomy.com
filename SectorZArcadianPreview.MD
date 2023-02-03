@@ -7,7 +7,7 @@ The 2022 Dutch PR came out last month! Which means it’s perfect time for the t
 
 ### The people who barely did not make the cut for PR last year.
 
-**Rabbitalex – Samus – Rotterdam**
+**Rabbitalex – Samus – Utrecht**
 
 Rabbitalex has the distinction of being the only person participating in the Arcadian to have been an Honourable Mention on a Dutch Melee PR. He is a HM on the current pr, due to some strong online wins such as Ryzon, a win on Stylo at Dreamhack Rotterdam and a frankly ridiculous run at Endless Melee #2 where he beat Renzo, RestlessWhale and Mihi to place 5th. Since Endless Melee #2 was a weekday tournament and combined with some poor results against the rest of the field (including multiple players to be named later) this caused him to be left off the Dutch PR, but it of course does mean he will have a great chance to do well at this event. 
 
@@ -36,9 +36,9 @@ Luckily we also have some people who have been on the come up recently who also 
 
 King Bath Monkey is back once again, he continues to be a scary player to see in bracket, having recently beaten NVZ at DSEA Winter 2023 and picking up a win on Rabbitalex at the most recent TODO local. The only obstacle in his way is the #1 seed curse, it remains to be seen if he’ll be able to beat it.
 
-**Thoma5 – Falco – Best**
+**TH0MA5 – Falco – Best**
 
-Here’s the brother of KoningBadaap, Thoma5. Thoma5 has gone a similar path as everybody’s favourite allegedly dutch player Kingu, having started on puff and then switching to a spacie. However, he had to put his own twist on it and had to start playing on rectangle at the same time. Thoma5 is the champion of vechtpartij #1, a mini-arcadian style tournament held within the main Dutch Zoomer Melee Grinder server, beating multiple people who will be talked about later.
+Here’s the brother of KoningBadaap, TH0MA5. TH0MA5 has gone a similar path as everybody’s favourite allegedly dutch player Kingu, having started on puff and then switching to a spacie. However, he had to put his own twist on it and had to start playing on rectangle at the same time. TH0MA5 is the champion of vechtpartij #1, a mini-arcadian style tournament held within the main Dutch Zoomer Melee Grinder server, beating multiple people who will be talked about later.
 
 **Djoek – Falco – Amsterdam**
 
