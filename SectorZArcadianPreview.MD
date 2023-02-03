@@ -97,7 +97,7 @@ Going through Seel’s [REDACTED]stats is quite funny, he has a bunch pre-pandem
 
 “The other Dutch yoshi” prior to NVZ’s switch to Yoshi used to be a staple at the Arrakis locals back before the pandemic but has since only appeared at TSEA Offline Smash where he placed 25th beating seo. It remains to be seen how good Peridot is nowadays, as Yoshi is often seen as a quite high-maintenance character. We will see but sometimes all it takes is holding down and pressing A twice (PT vs Peridot hyperlink hier).
 
-**Dopamine – Puff – Gelderland**
+**Dopamine – Puff – Nijmegen**
 
 Han Dopamine is contributing to breaking the trend of endless spacie mains at this tournament, unfortunately this also means they have to deal with a bunch of foxes in bracket which may not work out well for them. On the other hand, they have some good pre-pandemic wins over spacies such a nidyz and JMYL. They did attend TSEA Offline Smash in 2021 where they went 2-2 in bracket losing to Nicki and FezWa, but hey, these are arcadian level spacies who probably hate playing floaties with a passion.
 
