@@ -60,13 +60,13 @@ The only representative from Groningen (though she is originally from Limburg) i
 
 The most contentious category of them all, the foreigners who are here to ruin our day. Last arcadian was won by Ladder from Belgium and ever since then the dutch scene has been warning future generations about allowing foreigners and yet we did not learn from their mistakes.
 
-**Lilypad – Fox/Falco – Flanders**
-
-Lilypad funnily enough fits between both the previous category, having gotten 2nd at Vechtpartij #2, but also is technically a foreigner, hailing from Flanders in Belgium just across the border. They play a lot of online melee, having amassed almost a thousand sets on their [REDACTED]stats. Together with the rest of the Belgians, they are desperate for offline melee as Belgium is going through a bit of a TO/venue drought. They have yet to have gotten a big breakout as they placed to their seed at DSEA Winter 2023 losing only to PR’d Dutch players and King, so this may be the spacie player’s chance to show the Netherlands that the best Dutch speaking sub-PR player might be from Belgium!
-
 **Umbr – Sheik – Lyon**
 
 Despite living in Lyon in the south of France, Umbr signed up for this arcadian almost frame one, saving this tournament from being a bit too spacie heavy. Funnily enough, this will be her second out-of-country arcadian she is attending after she attended the German arcadian in November last year. Perhaps her arcadian experience will carry her through this spacie-filled landscape, which differs greatly from her local region which is very, very floatie dominated.
+
+**Lilypad – Fox/Falco – Flanders**
+
+Lilypad funnily enough fits between both this category and the previous category, having gotten 2nd at Vechtpartij #2, but also is technically a foreigner, hailing from Flanders in Belgium just across the border. They play a lot of online melee, having amassed almost a thousand sets on their [REDACTED]stats. Together with the rest of the Belgians, they are desperate for offline melee as Belgium is going through a bit of a TO/venue drought. They have yet to have gotten a big breakout as they placed to their seed at DSEA Winter 2023 losing only to PR’d Dutch players and King, so this may be the spacie player’s chance to show the Netherlands that the best Dutch speaking sub-PR player might be from Belgium!
 
 **Grolex – Fox – Belgium**
 
