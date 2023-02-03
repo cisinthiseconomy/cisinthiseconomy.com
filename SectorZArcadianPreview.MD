@@ -1,7 +1,7 @@
 # Sector Z Arcadian 2023 Preview
 *by [Nago](http://cisinthiseconomy.com)/Nago#0050 on Discord*
 
-*[Additional Bracket info]([https://www.start.gg/tournament/dsea-winter-2023](https://www.start.gg/tournament/sector-z-arcadian-2023/event/melee-singlez)) and [Stream](http://twitch.tv/supersmashdelft)*
+*[Additional Bracket info](https://www.start.gg/tournament/sector-z-arcadian-2023/event/melee-singlez) and [Stream](http://twitch.tv/supersmashdelft)*
 
 The 2022 Dutch PR came out last month! Which means it’s perfect time for the third Dutch arcadian! After Aaron won the first one in 2017 and Ladder won the second one in 2019, the Dutch scene is desperate to see who will be the best of the rest this year. We also hope it won’t be a foreigner again but beggars can’t be choosers. It’s also the perfect time for me to tell you about all the potential contenders attending this event his weekend! Starting with,
 
