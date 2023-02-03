@@ -46,7 +46,7 @@ Djoek is perhaps, besides the foreigners, the person who will annoy people the m
 
 **Sjor$ - Fox – Roermond**
 
-Sjor$, together with Thoma5 is part of the zoomer rectangle spacie mains. Unfortunately for Sjor$ he’s the one with the less decorated record. He’s had great runs about both vechtpartij #1 and #2 picking up some great wins, but he has struggled to reproduce these results at IRL events, yet. He is coming this weekend to represent the only region in this country to exhibit the phenomenom of HILLS.
+Sjor$, together with TH0MA5 is part of the zoomer rectangle spacie mains. Unfortunately for Sjor$ he’s the one with the less decorated record. He’s had great runs about both vechtpartij #1 and #2 picking up some great wins, but he has struggled to reproduce these results at IRL events, yet. He is coming this weekend to represent the only region in this country to exhibit the phenomenom of HILLS.
 
 **VirtualTiger – Fox – Amsterdam**
 
