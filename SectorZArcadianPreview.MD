@@ -9,7 +9,7 @@ The 2022 Dutch PR came out last month! Which means it’s perfect time for the t
 
 **Rabbitalex – Samus – Rotterdam**
 
-Rabbitalex has the distinction of being the only person participating in the Arcadian to have been an Honourable Mention on a Dutch Melee PR. He is a HM on the current pr, due to some strong online wins such as Ryzon, a win on Stylo at Dreamhack Rotterdam and a frankly ridiculous run at Endless Melee #2 where he beat Renzo, RestlessWhale and Mihi to place 5th. Since Endless Melee #2 was a weekday tournament and some poor results against the rest of the field (including multiple players to be named later) caused him to be left off the Dutch PR, but this of course means he will have a great chance to do well at this event. 
+Rabbitalex has the distinction of being the only person participating in the Arcadian to have been an Honourable Mention on a Dutch Melee PR. He is a HM on the current pr, due to some strong online wins such as Ryzon, a win on Stylo at Dreamhack Rotterdam and a frankly ridiculous run at Endless Melee #2 where he beat Renzo, RestlessWhale and Mihi to place 5th. Since Endless Melee #2 was a weekday tournament and combined with some poor results against the rest of the field (including multiple players to be named later) this caused him to be left off the Dutch PR, but it of course does mean he will have a great chance to do well at this event. 
 
 **Serket – Fox – Rotterdam**
 
