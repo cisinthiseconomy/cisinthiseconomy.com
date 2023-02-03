@@ -74,7 +74,7 @@ This man beat Lunary’s fox once, besides that he has been playing within the s
 
 **Melone – Falco – Brussels**
 
-Melone is preview for the next section about relatively inactive players, so strap in for some old shit. So funnily enough, Melone attended the first Dutch arcadian in 2017 where he did terribly. He then did a bunch of stuff, attended the last Sector Z before the pandemic and beat Rabbitalex, Karhu and Freekleef to place 17th. Since then he has played in some online stuff, beat Grolex a bunch at local stuff and besides that we don’t have a whole lot. He has some really good online wins including two separate online wins on Glaikit which is perhaps one of the more impressive wins anybody attending this arcadian has gotten, but he also has some weird losses so who knows how well he will do.
+Melone is a preview for the next section about relatively inactive players, so strap in for some old shit. So funnily enough, Melone attended the first Dutch arcadian in 2017 where he did terribly. He then did a bunch of stuff, attended the last Sector Z before the pandemic and beat Rabbitalex, Karhu and Freekleef to place 17th. Since then he has played in some online stuff, beat Grolex a bunch at local stuff and besides that we don’t have a whole lot. He has some really good online wins including two separate online wins on Glaikit which is perhaps one of the more impressive wins anybody attending this arcadian has gotten, but he also has some weird losses so who knows how well he will do.
 
 
 ### Inactive goons
