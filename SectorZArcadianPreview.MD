@@ -87,7 +87,7 @@ Our good friend randy rarely attends stuff but is a welcome presence within the 
 
 **Nidyz – Fox – Den Bosch**
 
-One half of Bossche Boys comes out of “retirement” after destroying his hands playing fox. He’s now here playing fox on a rectangle, utilizing new and improved ways to destroy one’s hands. He was quite good (having gotten multiple PR wins in 2019) prior to becoming inactive and playing DDR instead, truly an iconoclast who paved the way for nebbii’s retirement to play rhythm games and tetris.
+One half of Bossche Boys comes out of “retirement” after destroying his hands playing fox. He’s now here playing fox on a rectangle, utilizing new and improved ways to destroy one’s hands. He was quite good (having gotten multiple PR wins in 2019) prior to becoming inactive and playing ITG instead, truly an iconoclast who paved the way for nebbii’s retirement to play rhythm games and tetris.
 
 **Seel – Fox – Amsterdam**
 
