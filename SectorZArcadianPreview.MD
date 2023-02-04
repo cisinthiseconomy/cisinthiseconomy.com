@@ -95,7 +95,7 @@ Going through Seel’s [REDACTED]stats is quite funny, he has a bunch pre-pandem
 
 **Peridot – Yoshi – Helmond**
 
-“The other Dutch yoshi” prior to NVZ’s switch to Yoshi used to be a staple at the Arrakis locals back before the pandemic but has since only appeared at TSEA Offline Smash where he placed 25th beating seo. It remains to be seen how good Peridot is nowadays, as Yoshi is often seen as a quite high-maintenance character. We will see but sometimes all it takes is holding down and pressing A twice (PT vs Peridot hyperlink hier).
+“The other Dutch yoshi” prior to NVZ’s switch to Yoshi used to be a staple at the Arrakis locals back before the pandemic but has since only appeared at TSEA Offline Smash where he placed 25th beating seo. It remains to be seen how good Peridot is nowadays, as Yoshi is often seen as a quite high-maintenance character. We will see but sometimes [all it takes is holding down and pressing A twice](https://clips.twitch.tv/BitterSilkyChowderCoolStoryBro).
 
 **Dopamine – Puff – Nijmegen**
 
@@ -123,7 +123,7 @@ Karhu forgot to sign up for singles and then suddenly found out and got quickly 
 
 **Freekleef – Fox – Wageningen**
 
-Freekleef is a PM fox player from the city that features one of Europe’s most active PM scenes, Wageningen. Freekleef has the funny distinction together with the next player of being the only nationally ranked players at this arcadian, but as you can probably figure out, they are both ranked on the 2022 Dutch Project M PR. Freekleef has some nice things going for them going into this event, he plays arguably the PM version of arguably the best character in Melee and allegedly practices more Melee than he does PM, despite having never attended a Melee tournament before.
+Freekleef is a PM fox player from the city that features one of Europe’s most active PM scenes, Wageningen. Freekleef has the funny distinction together with the next player of being the only nationally ranked players at this arcadian, but as you can probably figure out, they are both ranked on the 2022 Dutch Project M PR. Freekleef has some nice things going for them going into this event, he plays arguably the PM version of arguably the best character in Melee and allegedly practices more Melee than he does PM, despite having more PM attendance than Melee.
 
 **Skoala – Pikachu – Leiden**
 
