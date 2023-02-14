@@ -1,7 +1,7 @@
 # What have we learned from the Sector Z Arcadian 2023?
 *by [Nago](http://cisinthiseconomy.com)/Nago#0050 on Discord*
 
-The Sector Z Arcadian 2023 was held earlier this month and like the last arcadian from 2019, a lot of things have happened that will perhaps take a little while to unpack. Luckily, I have a little while to unpack it all for you so here we go!
+[The Sector Z Arcadian 2023](https://www.start.gg/tournament/sector-z-arcadian-2023/details) was held earlier this month and like the last arcadian from 2019, a lot of things have happened that will perhaps take a little while to unpack. Luckily, I have a little while to unpack it all for you so here we go!
 
 ### Unfortunately (for the Netherlands), Belgium is victorious again
 
