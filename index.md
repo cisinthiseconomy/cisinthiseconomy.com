@@ -4,7 +4,8 @@ you probably found me through either my turntablism stuff , if you wanna see the
 
 if you need to get a hold of me, DM me on discord(Nago#0050), insta or cohost 
 
-here's that [melee essay i wrote](/ComparativeMeleeEssay)
-
-here's a [preview article i wrote for a big dutch melee tournament](/DSEAWinter2023Preview)
-
+### List of Melee articles
+- [Please stop trying to make Melee an “e-sport” (May 11th, 2021)](/ComparativeMeleeEssay)
+- [DSEA Winter 2023 preview (Jan 2nd, 2023)](/DSEAWinter2023Preview)
+- [Sector Z Arcadian 2023 Preview (Feb 3rd, 2023)](/SectorZArcadianPreview)
+- [What have we learned from the Sector Z Arcadian 2023? (Feb 14th, 2023)](/ArcadianRetrospective)
