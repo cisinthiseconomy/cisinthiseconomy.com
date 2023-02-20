@@ -9,7 +9,7 @@ Singles bracket at 20:00
 
 Redemption bracket starts ASAP after singles start
 
-Doubles bracket right after singles is over(around 22:00, depends on size of singles bracket ofc)
+Perhaps a tertiary event such as doubles or crews will be ran after both singles brackets end incase there is interest
 
 Venue closes at 00:00
 
@@ -34,7 +34,7 @@ Opposite end of the venue has a bar which serves dinner till 21:00, after that y
 
 [http://challonge.com/users/supersmashdelft/tournaments](https://challonge.com/users/supersmashdelft/tournaments)
 
-[**https://discord.gg/qQBZeFsmje**](https://discord.gg/qQBZeFsmje)
+[**Discord for additional announcements/info**](https://discord.gg/qQBZeFsmje)
 
 **Slippi Replays**
 
