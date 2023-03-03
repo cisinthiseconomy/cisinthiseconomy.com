@@ -3,7 +3,7 @@
 
 *[Additional bracket info](https://www.start.gg/tournament/somnio/details) and [Stream](http://twitch.tv/supersmashdelft)*
 
-Tomorrow the next big Dutch tournament is gonna be held since DSEA Winter 2023 and the Sector Z arcadian. There will be about 80ish entrants for melee, and there will be a PM and Tetris side brackets but those are not important for the purposes of this article. Anyway, I’m now going to throw some 2.5K words at you about all the people going to participate in the Melee bracket!
+Tomorrow the next big Dutch tournament is gonna be held since DSEA Winter 2023 and the Sector Z arcadian. There will be about 80ish entrants for melee, and there will be a PM and Tetris side bracket but those are not important for the purposes of this article. Anyway, I’m now going to throw some 2.5K words at you about all the people participating in the Melee bracket!
 
 
 ### The Dutch PR, HMs and Aaron
