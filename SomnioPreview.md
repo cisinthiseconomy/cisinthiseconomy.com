@@ -42,7 +42,7 @@ Friso hasn’t attended much since the last PR period, he has only attended DSEA
 
 **Mezzy – Noord-Brabant – Marth** 
 
-Mezzy has attended even less, he also peaked on the top 50 in EU Ranked but besides that he attended a local where he beat Noxxa and got double eliminated by NVZ in January, he hasn’t gone to anything since.
+Mezzy has attended even less, he also peaked on the top 50 in EU ranked but besides that he attended a local where he beat Noxxa and got double eliminated by NVZ in January, he hasn’t gone to anything since.
 
 **Risc – Noord-Holland – DK**
 
