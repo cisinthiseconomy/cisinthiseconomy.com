@@ -30,7 +30,7 @@ The legendary Bbatts slayer has been in a bit of a funk recently, messing around
 
 **RestlessWhale – Noord-Holland – Falco**
 
-Speaking of people who lose to ThommyN, this Amsterdam TO, commentator and Falco main has also lost to ThommyN at the very end of last year. He also 3-0’d him last week, also beating epikfaal for the 2nd time this year Besides that he has had some decent, if spotty results at his own local and a solid showing at DSEA Winter 2023. He seems to be doing better at these non-locals when his mental stack isn’t including making sure the tournament doesn’t run over schedule.
+Speaking of people who have lost to ThommyN, this Amsterdam TO, commentator and Falco main has also lost to ThommyN at the very end of last year. He also 3-0’d him last week, also beating epikfaal for the 2nd time this year Besides that he has had some decent, if spotty results at his own local and a solid showing at DSEA Winter 2023. He seems to be doing better at these non-locals when his mental stack isn’t including making sure the tournament doesn’t run over schedule.
 
 **noon – Zuid-Holland – Mario, Dr. Mario**
 
