@@ -9,3 +9,4 @@ if you need to get a hold of me, DM me on discord(Nago#0050), insta or cohost
 - [DSEA Winter 2023 preview (Jan 2nd, 2023)](/DSEAWinter2023Preview)
 - [Sector Z Arcadian 2023 Preview (Feb 3rd, 2023)](/SectorZArcadianPreview)
 - [What have we learned from the Sector Z Arcadian 2023? (Feb 14th, 2023)](/ArcadianRetrospective)
+- [Somnio Preview (March 3rd, 2023)](/SomnioPreview)
