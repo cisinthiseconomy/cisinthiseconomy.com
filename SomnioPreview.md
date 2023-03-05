@@ -82,7 +82,7 @@ Rabbitalex went into the arcadian last month as one of the top seeds. After swee
 
 He’s back folks. He came in January and beat everybody, since then he attended Saints & Smashers where his secondaries lost to 10QuidShoes and he then went all the way through losers to win the event over Kingu, Fat Tino and Question. He also attended SCR: Sorry for Party Rocking! where he placed 2nd only losing to Frenzy. He’s once again the favourite to win the event, I just hope he isn’t gonna go fox in grands again.
 
-**Guacamolio – Flanders – Fox**
+**Guacamolio – Flanders – Falco**
 
 Guacamolio is the first of many Belgian players I will be covering in this preview. Guacamolio is perhaps most known in the Dutch scene for being the man who beat Aaron at the very first Dutch arcadian in 2017, sending him into losers and starting off his very, very long losers run to end up winning the whole thing. Since then he has peaked at 4th place on the most recent 2019 Belgian Melee PR. He has beaten old man Razor Ramon at multiple Belgian tournaments but has mostly stayed in region so there’s a bit of a lack of information to cross-reference his modern skill-level with.
 
