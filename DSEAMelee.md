@@ -1,7 +1,7 @@
 # DSEA Melee Bi-weeklies, on every other thursday
 *TOd by Nago, Streamed by vlerk and Co-TO'd by Kim/Bananenbaard*
 
-**Dates:** Febuary 23rd, March 16th, March 23rd, April 13th, May 4th, May 18th, June 1st, June 15th, June 29th
+**Dates:** Febuary 23rd, March 16th, March 23rd, April 13th, May 4th, May 18th, May 25th, June 15th, June 29th
 
 **Time:** Entry at 19:00
 
