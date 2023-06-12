@@ -22,7 +22,9 @@ The building itself can feel like a bit of a maze, to get to the Theaterhal, go 
 
 **Transportation:** 
 Delft Campus trainstation about a 15 mins walk away
+
 Bus/tram stop right next to venue that has connections to the central Delft station
+
 Parking garage (P Sports) across the street from the venue
 
 **Food:**
