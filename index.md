@@ -10,3 +10,4 @@ if you need to get a hold of me, DM me on discord(cisinthiseconomy), insta or co
 - [Sector Z Arcadian 2023 Preview (Feb 3rd, 2023)](/SectorZArcadianPreview)
 - [What have we learned from the Sector Z Arcadian 2023? (Feb 14th, 2023)](/ArcadianRetrospective)
 - [Somnio Preview (March 3rd, 2023)](/SomnioPreview)
+- [My thoughts on the first 2 months of EU Melee in 2024 (Feb 29th, 2024)](/MeleeFeb2024Thoughts)
