@@ -32,7 +32,7 @@ Also **Bigger House of Smash** and **What The Duck?!** also happened and I do no
 
 ### **ohh yeah valhalla 4 also happened**
 
-Have you heard of our lord and saviour Tommy "Pricent" Lindås? If you hadn't heard of their solid run at Arcamelee #4, you better be paying attention now. This motherfuckers is the GOAT and they have also now signed up for Avant Deux so we're gonna have more Pricent in our lives and we are all better for it. I'm glad we also got to confirm that Nicki is also like absurdly good. Fat Tino's run was also kinda crazy, he's not winning against Frenzy domestically, but he's now 2-0 against Frenzy at majors (even if the fete 2 win was a bit mickey mouse).
+Have you heard of our lord and saviour Tommy "Pricent" Lindås? If you hadn't heard of their solid run at Arcamelee #4, you better be paying attention now. This motherfucker is the GOAT and they have also now signed up for Avant Deux so we're gonna have more Pricent in our lives and we are all better for it. I'm glad we also got to confirm that Nicki is also like absurdly good. Fat Tino's run was also kinda crazy, he's not winning against Frenzy domestically, but he's now 2-0 against Frenzy at majors (even if the fete 2 win was a bit mickey mouse).
 
 I would like to also quickly note that Steff$ got 9th at Valhalla 4 and that he doesn't consistently win his own region's locals and it makes me extremely curious about how good the rest of Austria is in the year 2024. Honestly the rest of the event felt kinda like a blur as it was my first time TOing a major/multi-day event so besides that all I can say is that it was really cool to see so many people come out to this event and supporting. Also thank you max/jadde for preventing NA from entering the top 8 thanksssssss. 
 
