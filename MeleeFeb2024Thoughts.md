@@ -6,7 +6,7 @@ So the first 2 months of the year have actually been quite eventful, usually it 
 
 ### **Neue Deutsche Melee, the DACH Summit**
 
-We were also treated with Neue Deutsche Melee, a summit-style event held for the DACH-region (Germany, Austria, Switzerland) that managed to accomplish the rare feat of having most of the German and Swiss top actually at the same tournament at once (No Kins0 because of covid and meager Austrian attendance). I feel like this event may have fallen a bit under the radar for any outsiders to the region, but it was quite a sight to see sets such as astar vs Rikzz being played in pools. 
+We were also treated with Neue Deutsche Melee, a summit-style event held for the DACH-region (Germany, Austria, Switzerland) that managed to accomplish the rare feat of having most of the German and Swiss top players actually at the same tournament at once (No Kins0 because of covid and meager Austrian attendance). I feel like this event may have fallen a bit under the radar for any outsiders to the region, but it was quite a sight to see sets such as astar vs Rikzz being played in pools. 
 
 While some of the eventual results were quite straight-forward such as Nicki winning the entire event dropping only 2 games to irfan throughout, some of my personal highlights were irfan placing 2nd beating BlackH4ze, Rikzz (right after asking melee stats how to deal with instant bair spam lol) and astar. Though perhaps the biggest thing that happened was astar 3-2'ing Rikzz in pools and going on to 3-0 Jah' Ridin' in the Losers Semifinal, ultimately losing to irfan to place 3rd. 
 
