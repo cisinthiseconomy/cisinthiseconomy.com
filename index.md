@@ -1,6 +1,6 @@
 heya its ur good pal Nago, DJ, melee TO, non-binary homosexual and some other shit idk
 
-you probably found me through either my turntablism stuff , if you wanna see the other dumb stuff(videogame/e-sports stuff and some gay/leftist shit too) i do check out my [non-shitty micro-blogging account(cohost)](https://cohost.org/cisinthiseconomy), my [stream](https://twitch.tv/cisinthiseconomy) or my [instagram](https://instagram.com/cisinthiseconomy), that I really need to start using for music stuff
+you probably found me through either my turntablism stuff , if you wanna see the other dumb stuff(videogame/e-sports stuff and some gay/leftist shit too) i do check out my [stream](https://twitch.tv/cisinthiseconomy) or my [instagram](https://instagram.com/cisinthiseconomy), that I really need to start using for music stuff
 
 if you need to get a hold of me, DM me on discord(cisinthiseconomy), insta or cohost 
 
