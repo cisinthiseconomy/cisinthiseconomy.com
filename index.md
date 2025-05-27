@@ -1,4 +1,4 @@
-heya its ur good pal Nago, DJ, melee TO, non-binary homosexual and some other shit idk
+heya its ur good pal Nago, dj/turntablist, melee TO, transgender homosexual and some other shit idk
 
 you probably found me through either my turntablism stuff , if you wanna see the other dumb stuff(videogame/e-sports stuff and some gay/leftist shit too) i do check out my [stream](https://twitch.tv/cisinthiseconomy) or my [instagram](https://instagram.com/cisinthiseconomy), that I really need to start using for music stuff
 
