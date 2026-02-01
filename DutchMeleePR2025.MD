@@ -23,7 +23,7 @@ Ik weet al een poos over Ceylan. In 2022 speelde ik regelmatig tegen hem op unra
 
 ### 15. Rabbitalex
      
-Ahh en daar is hij eindelijk. Na zijn Honourable Mention op de NL 2022 PR heeft Alex het eindelijk voor elkaar gekregen. De netplay toernooi grinder heeft het nog wel spannend gemaakt aan het eind van het jaar. Na een oneven run op Somnio: Noctem waar hij Metarix beatte maar toch drownde in pools en een underperformance op Get Sliced On | Fall, attende hij het laatste toernooi van het jaar, Vinyl Destination #9. Na net geupset te worden in pools door Sif en een loss tegen NVZ in bracket, won hij drie sets tegen puffs achter elkaar in losers, eerst Dopamine, dan ThommyN en dan een absurde game 5 last stock win over Dr. J. Een van de meer memorable runs op een Nederlands toernooi van dit jaar naar mijn mening.
+Ahh en daar is hij eindelijk. Na zijn Honourable Mention op de NL 2022 PR heeft Alex het eindelijk voor elkaar gekregen. De netplay toernooi grinder heeft het nog wel spannend gemaakt aan het eind van het jaar. Na een oneven run op Somnio: Noctem waar hij Metarix beatte maar toch drownde in pools en een underperformance op Get Sliced On Fall, attende hij het laatste toernooi van het jaar, Vinyl Destination #9. Na net geupset te worden in pools door Sif en een loss tegen NVZ in bracket, won hij drie sets tegen puffs achter elkaar in losers, eerst Dopamine, dan ThommyN en dan een absurde game 5 last stock win over Dr. J. Een van de meer memorable runs op een Nederlands toernooi van dit jaar naar mijn mening.
 
 ### 14. NVZ
      
