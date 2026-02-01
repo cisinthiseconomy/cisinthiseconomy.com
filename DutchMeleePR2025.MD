@@ -15,7 +15,7 @@ Na de ene provincie die maar één persoon op de PR heeft, gaan we naar een ande
 
 ### 17. nago 
      
-Hey dit ben ik, jouw favoriete Zuid Holland TO. Ik zit nu al sinds 2022 in het Nederlandse PR panel en eindelijk sta ik nu ook gewoon daadwerkelijk op de PR. Ik heb eigenlijk absurd veel geattend dit jaar, grotendeels gebuffd door het feit dat ik naar Roffa Rumble en Bunker ga, maar ook deels omdat ik naar veel van de kleinere weekendtoernooien ga in Nederland. Hierdoor heb ik ook technisch gezien twee weekendtoernooi wins in Out Of Bounds (RIP Borderline Smash) en Get Sliced On | Fall 2025. shoutouts naar naar het scherm kijken.
+Hey dit ben ik, jouw favoriete Zuid Holland TO. Ik zit nu al sinds 2022 in het Nederlandse PR panel en eindelijk sta ik nu ook gewoon daadwerkelijk op de PR. Ik heb eigenlijk absurd veel geattend dit jaar, grotendeels gebuffd door het feit dat ik naar Roffa Rumble en Bunker ga, maar ook deels omdat ik naar veel van de kleinere weekendtoernooien ga in Nederland. Hierdoor heb ik ook technisch gezien twee weekendtoernooi wins in Out Of Bounds (RIP Borderline Smash) en Get Sliced On Fall 2025. shoutouts naar naar het scherm kijken.
 
 ### 16. ceylansen 
      
