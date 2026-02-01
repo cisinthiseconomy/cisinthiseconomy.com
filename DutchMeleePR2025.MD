@@ -48,7 +48,7 @@ In 2024 was zijn resume grotendeels gevuld met wins op Nederlanders, maar dit ja
 
 ### 10. Dr. J 
      
-De vertegenwoordiger voor Noord Nederland is nu ook de enige vertegenwoordiger van Jigglypuff geworden sinds ThommyN inactief is geworden. Een mooie victory lap was verdiend voor onze goeie vriend uit Friesland met wis op Valou, Psylo, Noxxa en Nuckels. Hij liet dit jaar ook best veel consistentie zien, buiten een loss tegen Danubi op een Hyperfocus en de eerdergenoemde loss tegen Rabbitalex heeft hij niet echt slechte losses getankd en was primair de upsetter in plaats van de upsettee. 
+De vertegenwoordiger voor Noord Nederland is nu ook de enige vertegenwoordiger van Jigglypuff geworden sinds ThommyN inactief is geworden. Een mooie victory lap was verdiend voor onze goeie vriend uit Friesland met wins op Valou, Psylo, Noxxa en Nuckels. Hij liet dit jaar ook best veel consistentie zien, buiten een loss tegen Danubi op een Hyperfocus en de eerdergenoemde loss tegen Rabbitalex heeft hij niet echt slechte losses getankd en was primair de upsetter in plaats van de upsettee. 
 Ook een kleine persoonlijke shoutout naar zijn goeie attendance dit jaar, het is niet makkelijk om veel te attenden als je in het noorden woont vraag maar aan Jeapie. Er zijn mensen die in de randstad wonen die niet eens dichtbij Dr. J's 9 toernooien (12 inclusief Hyperfocus) komen.
 
 En extra shoutouts dat hij mij en de rest van de carpool (deels) reed naar Bayer-Cup Grand Finale, if you know you know. (lees hier meer over in de Nuckels blurb).
