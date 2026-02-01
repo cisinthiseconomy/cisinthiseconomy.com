@@ -50,12 +50,14 @@ In 2024 was zijn resume grotendeels gevuld met wins op Nederlanders, maar dit ja
      
 De vertegenwoordiger voor Noord Nederland is nu ook de enige vertegenwoordiger van Jigglypuff geworden sinds ThommyN inactief is geworden. Een mooie victory lap was verdiend voor onze goeie vriend uit Friesland met wis op Valou, Psylo, Noxxa en Nuckels. Hij liet dit jaar ook best veel consistentie zien, buiten een loss tegen Danubi op een Hyperfocus en de eerdergenoemde loss tegen Rabbitalex heeft hij niet echt slechte losses getankd en was primair de upsetter in plaats van de upsettee. 
 Ook een kleine persoonlijke shoutout naar zijn goeie attendance dit jaar, het is niet makkelijk om veel te attenden als je in het noorden woont vraag maar aan Jeapie. Er zijn mensen die in de randstad wonen die niet eens dichtbij Dr. J's 9 toernooien (12 inclusief Hyperfocus) komen.
+
 En extra shoutouts dat hij mij en de rest van de carpool (deels) reed naar Bayer-Cup Grand Finale, if you know you know. (lees hier meer over in de Nuckels blurb).
      
 ### 9. Happymealz 
      
 Happymealz was de laatste paar jaren een van de meest actieve reizigers in de Nederlandse Melee gemeenschap, maar dit jaar heeft het ultieme doel bereikt die elke melee speler wilt bereiken, een baan krijgen.
 Hierbuiten werd hij in 2025 ook een first time head TO met Happy's Home, één van de meer memorable non-major Nederlandse toernooien van de post-pandemie tijdperk. Ik ben zelf heel trots op Happymealz dat hij nu deze levensrichting heeft gekozen en ik wens hem veel succes in zijn loopbaan en hopelijk komt er misschien ook een Happy's Home 2, ik mis Zeeland.
+
 Al is Happymealz nu een proud loonslaaf, is hij eigenlijk nog steeds best actief als speler. Hij ging naar meerdere majors waar hij wins pakte op o.a. Fred Melee en Pi, maar zijn meest notable win was top 100 speler en Mang0 slayer Equilateral op CEO 2025. Mogelijk een van de mooiste "Iedereen's Armada nummer gaat gelijk omlaag" gebeurtenissen in recente geschiedenis. 
 
 ### 8. RestlessWhale 
@@ -71,6 +73,7 @@ Toch heeft hij een mooi consistent jaar gehad, met die Skullbro win, een win op 
 ### 6. Nuckels
      
 Ohh mijn god, het was 29 December 2024, een groep Nederlandse smashers gaan in de vroege winter ochtend naar Bayer-Cup Grande Finale. Na de carpool van hell met uiteindelijk 3-4 uur van reisvertraging komen we uiteindelijk aan bij de venue en we mogen meteen beginnen met singles sets spelen. Een paar uur later en Nuckels en Happymealz zitten in grands en na een tragische 3-0 met wat SD's staat Nuckels op met de trofee in zijn handen. Twee weken later is hij aan het competen bij Let's Start The Fire, nog twee weken later is hij Somnio 6 aan het TO'en. Hij houdt zichzelf wel altijd bezig. 
+
 In 2025 is Nuckels naar vier verschillende landen gereist en heeft hij een mooi kleurrijk win-lijstje voor zichzelf opgebouwd met wins over vele buitenlandse Sheiks zoals Kaese, Tellmis and Saile. Hij heeft het ook mooi gedaan in Nederland op de weinige toernooien die hij niet TO't waar hij o.a. Happymealz en RestlessWhale heeft gepakt. Natuurlijk is Nuckels ook een dubbelsfanaat en heeft hij dit jaar twee toernooien gewonnen met $TYN en eentje met Amsah voor de one time. Daarnaast was Nuckels ook nog in de VS, nadat hij met Fuzzyness vluchten had gewonnen voor hun doubles performance op Let's Start The Fire. Daarboven op heeft hij ook nog Somnio: Noctem geTOt, de eerste Nederlandse major sinds Dreamhack Rotterdam in 2022. Zoals ik zei, hij is altijd wel bezig. 
 
 ### 5. Noxxa
